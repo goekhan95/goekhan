@@ -1,0 +1,2 @@
+# goekhan
+want learn things 
